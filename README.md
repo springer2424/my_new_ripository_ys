@@ -1,2 +1,1 @@
-# my_new_ripository_ys
-for_test
+yechiel-naftaly springr golan 206937625
